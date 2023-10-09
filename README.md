@@ -7,4 +7,6 @@
 
 ![image](https://github.com/M3go2/Space-Shooter/assets/58921028/b4edfdfb-e6af-4e4d-b4c7-71120e43b189)
 
+![image](https://github.com/M3go2/Space-Shooter/assets/58921028/a1938680-645b-4e59-9a12-e1d06312fc48)
+
 ![image](https://github.com/M3go2/Space-Shooter/assets/58921028/7ef5718e-8ee7-4218-922e-5adc2751b5eb)
